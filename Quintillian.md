@@ -2,6 +2,7 @@
 INSTITUTIO ORATORIA: Book X </h1>
 http://twitter.us13.list-manage.com/track/click?
 u=d9ae0033d0cbf2d5b1cbe2e01&id=ad5b2692e8&e=63809cc5c1
+
 1. But these rules of style, while part of the student's theoretical knowledge, are not in
 themselves sufficient to give him oratorical power. In addition he will require that
 assured facility which the Greeks call ἔξις. I know that many have raised the question
